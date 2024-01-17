@@ -2,7 +2,8 @@
    [![𝐃ιϲʀατoʀ](https://github-stats-alpha.vercel.app/api?username=SAIFDEAD "SAIFDEAD")](https://github-stats-alpha.vercel.app/api?username=SAIFDEAD "SAIFDEAD")
                                                           
   
-<img src="https://readme-typing-svg.herokuapp.com?color=00FF00&width=420&lines="💖++𝐖𝙴𝙻𝙲𝙾𝙼𝙴+𝚃𝙾+𝚂𝙰𝙸𝙵+𝙳𝙸𝙲𝚃𝙰𝚃𝙾𝚁+𝙶𝙸𝚃𝙷𝚄𝙱+💖+𝙰𝙻𝙻+𝚃𝙷𝙸𝚂+𝚁𝙴𝙿𝙾+𝙸𝚂+𝙼𝙰𝙳𝙴+𝙱𝚈+𝚂𝙰𝙸𝙵+♨️">
+
+<img src="https://readme-typing-svg.herokuapp.com?color=00FF00&width=420&lines=🌿+𝐓𝐇𝐄+𝐓𝐄𝐀𝐌+𝐃𝐀𝐗𝐗+🌱">
 
 
 <!--
