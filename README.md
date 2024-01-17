@@ -3,7 +3,7 @@
                                                           
   
 
-<img src="https://readme-typing-svg.herokuapp.com?color=00DD00&width=420&lines=🦋𝐖𝙻𝙴𝙲𝙾𝙼𝙴+𝐓𝚘+𝐒𝙰𝙸𝙵+𝐃𝙸𝙲𝚃𝙰𝚃𝙾𝚁+𝐆𝙸𝚃𝙷𝚄𝙱🌹">
+<img src="https://readme-typing-svg.herokuapp.com?color=00DD00&width=9999&lines=🦋𝐖𝙻𝙴𝙲𝙾𝙼𝙴+𝐓𝚘+𝐒𝙰𝙸𝙵+𝐃𝙸𝙲𝚃𝙰𝚃𝙾𝚁+𝐆𝙸𝚃𝙷𝚄𝙱🌹">
 
 
 <!--
